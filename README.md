@@ -12,16 +12,18 @@ these are the things i put in my ponies names:
 - silent - not speaking! i will talk in emotes tho ^^
 - w2i - whisper to interact! probably offtab if i have this in my name. whisper if u wanna get my attention :P
 
-where i usually sit:
+random places where i usually sit:
+(the ones marked with stars are where i sit the most!)
 
-- pjsk section
-- mw section
-- bakery
+- pjsk section ⭐
+- mw section ⭐
+- bakery ⭐
 - library
-- in trees
+- in trees ⭐
 - spawn
 - docks
 - mcyt area
+- cookie run kingdom area ⭐
 
 please note!! : i may not always see your message if you send me one, so i apologize for that if it happens!! if its important or if you really want to talk to me, please whisper to me, as there's a 90% chance ill see it :)
 
