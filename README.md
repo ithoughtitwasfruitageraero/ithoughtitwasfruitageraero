@@ -27,6 +27,8 @@ random places where i usually sit:
 
 please note!! : i may not always see your message if you send me one, so i apologize for that if it happens!! if its important or if you really want to talk to me, please whisper to me, as there's a 90% chance ill see it :)
 
+note number 2: i also dont join parties unless you're my friend, mainly because i get intimidated by large groups and/or speaking with strangers. so sorry if i don't accept your invitation!!!
+
 i think thats all i need to cover rn :D if i need to, ill add more!
 
 ~ baii :3 ~
