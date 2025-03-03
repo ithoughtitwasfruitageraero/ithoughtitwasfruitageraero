@@ -1,6 +1,6 @@
 ~ HAIII !! welcome to my profile ^^ ~
 
-this is where ill put all my pt info :3
+this is where ill put all my pt info :3 
 
 so to start out,
 these are the things i put in my ponies names:
